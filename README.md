@@ -1,1 +1,0 @@
-# SOLAR-LABAP-2024clvvy
